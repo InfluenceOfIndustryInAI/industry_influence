@@ -1,1 +1,0 @@
-# industry_influence
